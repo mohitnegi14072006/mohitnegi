@@ -1,5 +1,16 @@
 # Hi, I am Mohitnegi 👋
 
+**A passionate Ai researcher|| web development || Mohit from India**
+
+Email Me 👉 ✉️ **mohitnegi1112@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+
+- 🔭 **I’m currently working on:** small projects
+- 🌱 **I’m currently learning:** javascript 
+- 🤔 **I’m looking for help with:** my projects
+- 💬 **Ask me about:** Collaboration
+- 📫 **How to reach me:** mohitnegi1112@gmailcom
+- 😄 **Pronouns:** Mohit negi
+
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/dex_aef) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/mohit-negi-a20500425) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@@Mohit_aef) [![Mastodon](https://img.shields.io/badge/-MASTODON-%232B90D9?logo=mastodon&logoColor=white)](https://mastodon.social/@Mohitnegi) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:mohitnegi1112@gmail.com) 
 
