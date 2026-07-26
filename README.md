@@ -1,1 +1,1 @@
-# hi, i am Mohitnegi 👋
+# Hi, I am Mohitnegi 👋
