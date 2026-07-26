@@ -1,6 +1,7 @@
 # Hi, I am Mohitnegi 👋
 
 **A passionate Ai researcher|| web development || Mohit from India**
+**Still learning || always bulding**
 
 Email Me 👉 ✉️ **mohitnegi1112@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
